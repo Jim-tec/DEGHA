@@ -1,0 +1,2 @@
+# DEGHA
+Partnerschaft statt Hilfe
